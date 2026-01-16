@@ -1,0 +1,2 @@
+# mtm6201-week1
+WEEK 1 ASSIGNMENT
